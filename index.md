@@ -1,4 +1,4 @@
-# A
+# [A](https://en.wikipedia.org/wiki/The_World%27s_Billionaires)
 There’s a quiet kind of poetry hiding in that pile of numbers. A few things stand out once you let the pattern settle into focus.
 
 The first remarkable thing is how thoroughly the 1990s billionaire universe was shaped by **old-world industrial, retail, and real-estate dynasties**—Walton (Walmart), DuPont, Rausing (Tetra Pak), Mars, Mori, Seibu, Sainsbury, Roche. This is wealth built on supply chains, physical stores, factories, land portfolios, and the slow accretion of family power.
